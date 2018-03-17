@@ -1,2 +1,2 @@
-# 1934.github.io
-1934 website
+# 1934.nu
+Official 1934 website
