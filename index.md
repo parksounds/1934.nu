@@ -1,3 +1,4 @@
+
 ---
 layout: default
 ---
@@ -5,9 +6,17 @@ layout: default
 
 Musikföreningen 1934 är en arrangörsförening som älskar livemusik. Namnet kommer från Teaterladan i Huskvarna Folkets park som uppfördes 1934. Vi är sprungna ur festivalen Popadelica och vårt mål är att få fler att upptäcka bra musik. 
 
+
+----------
+
+
 **Kommande spelningar 2018**
-* 19 MAJ [Park Sounds 2018](https://parksounds.se/) 
-* 12 AUG [Säkert!](https://www.facebook.com/events/602547260085881/)
+* 19 MAJ [Park Sounds 2018](https://parksounds.se/)  **[Köp biljetter](https://secure.tickster.com/Intro.aspx?ERC=MMM4DEZMGZ96711)**
+* 12 AUG [Säkert!](https://www.facebook.com/events/602547260085881/) **[Köp biljetter](https://secure.tickster.com/Intro.aspx?ERC=625GR8A86ZL10JF)**
+
+
+----------
+
 
 **Tidigare spelningar**  
 
