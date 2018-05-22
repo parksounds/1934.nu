@@ -10,14 +10,16 @@ Musikföreningen 1934 är en arrangörsförening som älskar livemusik. Namnet k
 
 
 **Kommande spelningar 2018**
-* 19 MAJ [Park Sounds 2018](https://parksounds.se/)  **[Köp biljetter](https://secure.tickster.com/Intro.aspx?ERC=MMM4DEZMGZ96711)**
-* 12 AUG [Säkert!](https://www.facebook.com/events/602547260085881/) **[Köp biljetter](https://secure.tickster.com/Intro.aspx?ERC=625GR8A86ZL10JF)**
+* 12 AUG [Säkert!](https://www.facebook.com/events/602547260085881/) **UTSÅLT**
 
 
 ----------
 
 
 **Tidigare spelningar**  
+
+2018
+* 19 MAJ [Park Sounds 2018](https://parksounds.se/) **UTSÅLT**
 
 2017  
 * 25 NOV [REIN + AVANTGARDET + VITA BERGEN](https://www.facebook.com/events/934859166655073/)
