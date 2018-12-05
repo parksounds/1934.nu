@@ -9,9 +9,13 @@ Musikföreningen 1934 är en arrangörsförening som älskar livemusik. Namnet k
 ----------
 
 
-**Kommande spelningar 2018**
-* 12 AUG [Säkert!](https://www.facebook.com/events/602547260085881/) **UTSÅLT**
+**Kommande spelningar 2018-2019**
 
+2018
+* 21 DEC [Dani M, Lindra Pira, Imenella och Unruly Gang](https://www.facebook.com/events/646242905770212/) [Köp biljett](https://secure.tickster.com/Intro.aspx?ERC=BH3X7XFZYD3NG4L) 
+
+2019
+* 09 MAR [SILVANA IMAM](https://www.facebook.com/events/536199923528042/) [Köp biljett](https://secure.tickster.com/Intro.aspx?ERC=K9MP2D9K8U62BEX)
 
 ----------
 
@@ -19,6 +23,7 @@ Musikföreningen 1934 är en arrangörsförening som älskar livemusik. Namnet k
 **Tidigare spelningar**  
 
 2018
+* 12 AUG [Säkert!](https://www.facebook.com/events/602547260085881/) **UTSÅLT**
 * 19 MAJ [Park Sounds 2018](https://parksounds.se/) **UTSÅLT**
 
 2017  
