@@ -14,7 +14,7 @@ Musikföreningen 1934 är en arrangörsförening som älskar livemusik. Namnet k
 2019
 
 * 18 MAJ [PARK SOUNDS 2019](https://parksounds.se/) - **[Köp biljett](https://secure.tickster.com/mcpx1mu3pkb29hl)**
-* 9 NOV [BOB HUND] (https://www.facebook.com/events/639686916483919/)
+* 9 NOV [BOB HUND](https://www.facebook.com/events/639686916483919/) - **[Köp biljett](https://secure.tickster.com/9r9elf8rjfbt9zj)
 
 
 ----------
