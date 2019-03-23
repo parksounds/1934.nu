@@ -14,13 +14,16 @@ Musikföreningen 1934 är en arrangörsförening som älskar livemusik. Namnet k
 2019
 
 * 18 MAJ [PARK SOUNDS 2019](https://parksounds.se/) - **[Köp biljett](https://secure.tickster.com/mcpx1mu3pkb29hl)**
+* 9 NOV [BOB HUND] (https://www.facebook.com/events/639686916483919/)
 
-* 09 MAR [SILVANA IMAM](https://www.facebook.com/events/536199923528042/) - **[Köp biljett](https://secure.tickster.com/Intro.aspx?ERC=K9MP2D9K8U62BEX)**
 
 ----------
 
 
 **Tidigare spelningar**  
+
+2019
+* 09 MAR [SILVANA IMAM](https://www.facebook.com/events/536199923528042/)
 
 2018
 * 21 DEC [DANI M, LINDA PIRA, IMENELLA OCH UNRULY GANG](https://www.facebook.com/events/646242905770212/)
