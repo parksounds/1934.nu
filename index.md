@@ -3,25 +3,23 @@ layout: default
 ---
 # Musikföreningen 1934
 
-Musikföreningen 1934 är en arrangörsförening som älskar livemusik. Namnet kommer från Teaterladan i Huskvarna Folkets park som uppfördes 1934. Vi är sprungna ur festivalen Popadelica och vårt mål är att få fler att upptäcka bra musik. 
+Musikföreningen 1934 är en arrangörsförening som älskar livemusik. Namnet kommer från Teaterladan i Huskvarna Folkets park som uppfördes år 1934. Vi är sprungna ur festivalen Popadelica och vårt mål är att få fler att upptäcka bra musik. 
 
 
 ----------
 
 
-**Kommande spelningar 2019**
-
-2019
-
-* 29 NOV [Anna Ternheim](https://www.facebook.com/events/2121531504632632/) - **[Köp biljett](https://secure.tickster.com/sv/albdyty8mzfkzyb)**
-* 9 NOV [BOB HUND, Hurula och Knash!](https://www.facebook.com/events/639686916483919/) - **[Köp biljett](https://secure.tickster.com/9r9elf8rjfbt9zj)**
-* 6 OKT [Prince Daddy & The Hyena, Oso Oso, I Love Your Lifestyle](https://www.facebook.com/events/1064529643937478/) - **[Köp biljett](https://secure.tickster.com/sv/a3xr0b9kaf252mu/)**
+**Kommande spelningar 2020 **
+* 30 MAJ [PARK SOUNDS 2020](https://parksounds.se/)
 
 ----------
 
 **Tidigare spelningar**  
 
 2019
+* 29 NOV [Anna Ternheim](https://www.facebook.com/events/2121531504632632/) - **[Köp biljett](https://secure.tickster.com/sv/albdyty8mzfkzyb)**
+* 9 NOV [BOB HUND, Hurula och Knash!](https://www.facebook.com/events/639686916483919/) - **[Köp biljett](https://secure.tickster.com/9r9elf8rjfbt9zj)**
+* 6 OKT [Prince Daddy & The Hyena, Oso Oso, I Love Your Lifestyle](https://www.facebook.com/events/1064529643937478/) - **[Köp biljett](https://secure.tickster.com/sv/a3xr0b9kaf252mu/)**
 * 1 SEP [WEEPING WILLOWS OCH SARAH KLANG](https://www.facebook.com/events/374529296471839/)
 * 18 MAJ [PARK SOUNDS 2019](https://parksounds.se/) TEDDYBEARS - SÄKERT! - CULT OF LUNA - KITE - JUNIOR BRIELLE - SPIELBERGS (NO) - LION (UK) - QUEEN ZEE (UK) - MAIDAVALE
 * 09 MAR [SILVANA IMAM](https://www.facebook.com/events/536199923528042/)
