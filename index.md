@@ -9,8 +9,8 @@ Musikföreningen 1934 är en arrangörsförening som älskar livemusik. Namnet k
 ----------
 
 
-**Kommande spelningar 2020**
-* 30 MAJ [PARK SOUNDS 2020](https://parksounds.se/)
+**Kommande spelningar**
+* [PARK SOUNDS](https://parksounds.se/)
 
 ----------
 
