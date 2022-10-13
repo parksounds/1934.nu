@@ -16,7 +16,7 @@ Musikföreningen 1934 är en arrangörsförening som älskar livemusik. Namnet k
 **Tidigare spelningar**  
 
 2022
-* [PARK SOUNDS 2022](https://parksounds.se/) KVELERTAK - MARES - TERRA - BAD NERVES - OLIVIA LOBATO - THROWN - PAULA JIVÉN - HANNES
+* [PARK SOUNDS 2022](https://parksounds.se/) KVELERTAK - MARES - HANNES - BAD NERVES (UK) - OLIVIA LOBATO - PAULA JIVÉN - THROWN
 
 
 2021
