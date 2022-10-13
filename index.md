@@ -16,7 +16,8 @@ Musikföreningen 1934 är en arrangörsförening som älskar livemusik. Namnet k
 **Tidigare spelningar**  
 
 2022
-* [PARK SOUNDS 2022](https://parksounds.se/)
+* [PARK SOUNDS 2022]Kvelertak, Terra, Bad Nerves, Olivia Lobato,
+Thrown, Mares, Paula Jivén, Hannes(https://parksounds.se/)
 
 
 2021
