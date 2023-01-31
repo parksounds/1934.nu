@@ -11,6 +11,9 @@ Musikföreningen 1934 är en arrangörsförening som älskar livemusik. Namnet k
 
 **Kommande spelningar**
 
+2023
+* 27 MAJ [PARK SOUNDS 2023](https://parksounds.se/) DAVID RITSCHARD – GIRL SCOUT – GALLUS (UK)
+
 ----------
 
 **Tidigare spelningar**  
