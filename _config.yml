@@ -7,7 +7,7 @@ plugins:
   - jekyll-sitemap
 
 # ignore gulp and stuff
-exclude: ["node_modules", "gulpfile.js", "package.json", "bower_components", "gulp"]
+exclude: ["node_modules", "gulpfile.js", "package.json", "bower_components", "gulp", "vendor", "bundle"]
 
 buildtype: production
 url: http://1934.nu
